@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @J1mbJ1ngl3r
-- 👀 I’m interested in Interesting Idea's and Concepts, Working with my Hands, Being Outside.
-- 🌱 I’m currently learning Programming, Gardening, Growing
-- 💞️ I’m looking to collaborate on anything and everything
+- 👀 I’m interested in Interesting Idea's and Concepts, Working with my Hands, Being Outside (I live in the mountains)
+- 🌱 I’m currently learning Programming, Gardening, Being a Decent Human
+- 💞️ I’m looking to collaborate on anything and everything where there is potential for growth
 - 📫 How to reach me - don't, but a pm is fine.
